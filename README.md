@@ -1,11 +1,11 @@
 # Privacy Policy
 
 **Effective Date:** [09-05-2025]  
-**Developer:** [Your Game Studio Name]
+**Developer:** [YOJO GAMES]
 
 ## Your Privacy Matters to Us
 
-At **[Your Game Studio Name]**, we respect your privacy and are committed to protecting your personal information. This Privacy Policy explains how we collect, use, and safeguard data when you use our mobile games on the Google Play Store.
+At **[YOJO GAMES]**, we respect your privacy and are committed to protecting your personal information. This Privacy Policy explains how we collect, use, and safeguard data when you use our mobile games on the Google Play Store.
 
 ---
 
